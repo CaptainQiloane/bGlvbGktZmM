@@ -1,2 +1,2 @@
 # bGlvbGktZmM
-parental control
+cq parental control
